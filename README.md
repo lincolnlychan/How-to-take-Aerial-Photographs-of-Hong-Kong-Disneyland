@@ -17,3 +17,6 @@ Then, you should scan and acquire Hong Kong Disneyland with your own eyes, then 
 You can [download/save the Hong Kong Area to your Google Maps app](https://support.google.com/maps/answer/6291838) to see what takeoff or landing path the air traffic control have assigned for your flight to see if you will be able to take photos of Hong Kong Disneyland. GPS still work when airplane mode is turned on. 
 ## Hong Kong Disneyland Nighttime show
 If you are taking off or landing when Disneyland is having their Nighttime show, you should be able to see them and can even take photos of it with your phone. You can check when these show begin [using the Hong Kong Disneyland app.](https://www.hongkongdisneyland.com/zh-hk/mobile-app/)
+
+
+### There is my [Linkedlin](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)
