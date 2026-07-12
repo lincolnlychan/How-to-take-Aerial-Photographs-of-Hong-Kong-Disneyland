@@ -20,7 +20,7 @@ If you are taking off or landing when Disneyland is having their Nighttime show,
 
 ### If you find this article helpful, I would really appreciate you if you [star this article's GitHub Repository](https://github.com/lincolnlychan/How-to-take-Aerial-Photographs-of-Hong-Kong-Disneyland/) or [give this article a like on Linkedin](https://www.linkedin.com/pulse/how-take-aerial-photographs-hong-kong-disneyland-when-lincoln-chan-47jyc/), thank you very much!
 
-This repository’s social media preview image is [an Aerial Photo of Hong Kong Disneyland taken by Ryan Severin just after takeoff](https://www.facebook.com/groups/hkdltips/permalink/1933121910744880/) 
+[This repository’s](https://github.com/lincolnlychan/How-to-take-Aerial-Photographs-of-Hong-Kong-Disneyland/) social media preview image is [an Aerial Photo of Hong Kong Disneyland taken by Ryan Severin just after takeoff](https://www.facebook.com/groups/hkdltips/permalink/1933121910744880/) 
 <img alt="[an Aerial Photo of Hong Kong Disneyland taken by Ryan Severin just after takeoff](https://www.facebook.com/groups/hkdltips/permalink/1933121910744880/) " src="https://github.com/user-attachments/assets/4c8dbf4d-9a5f-4364-b049-5623b8c78e83" />
 [This article was originally posted on Linkedin.](https://www.linkedin.com/pulse/how-take-aerial-photographs-hong-kong-disneyland-when-lincoln-chan-47jyc/)
 
