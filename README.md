@@ -32,6 +32,7 @@ If you are taking off or landing when Disneyland is having their Nighttime show,
 - 如何拍攝香港迪士尼樂園俯瞰圖
 - 如何拍攝香港迪士尼樂園高空圖
 - 在飛機上看到香港迪士尼樂園攻略 
+- 在飛機上看迪士尼煙火攻略
 - 如何在飛機上看到香港迪士尼樂園
 - 點樣喺飛機上面睇到香港迪士尼樂園 
 - 點樣喺空中影到香港迪士尼樂園
