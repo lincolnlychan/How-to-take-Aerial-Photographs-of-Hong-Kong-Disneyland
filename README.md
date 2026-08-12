@@ -1,5 +1,4 @@
 ## How to take aerial photographs of Hong Kong Disneyland
-#### by [Lincoln Chan](https://www.linkedin.com/in/lincoln-chan-0a5a60346/) 
 Publicly available Up-to-date satellite images of Hong Kong Disneyland (HKDL) are hard to come by. Seeing and taking of photos of Hong Kong Disneyland from the air are also very cool and magical. If you want aerial views of Hong Kong Disneyland, this is how you do it. 
 ## Choosing the right seat
 When you are landing/arriving in Hong Kong, you should choose to sit in the left/port side window seat of your flight into Hong Kong. When you are taking off/leaving from Hong Kong, you should choose to sit in the right/starboard side window seat of your flight out of Hong Kong. 
