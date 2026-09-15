@@ -8,8 +8,9 @@ You are recommended to use a camera to take your Aerial Photo of Hong Kong Disne
 ##  Takeoff/Departure from Hong Kong 
 When you see land when you are on the Runway (Not Taxiway) or taking off/ you are taking off from runway 07L/07C/07R, you are in the right Takeoff/Departure path to be able to see and take photograph of Hong Kong Disneyland. Once you have taken off, you should scan and acquire Hong Kong Disneyland with your own eyes, then point your camera at Hong Kong Disneyland to take photos of it.
 <img alt="Appropriate location of Hong Kong Disneyland along the Takeoff/Departure path of Hong Kong International Airport (IATA: HKG, ICAO: VHHH). [Graphics by Lincoln Chan](https://www.linkedin.com/in/lincoln-chan-0a5a60346/) " src="https://github.com/user-attachments/assets/dc710c1e-4023-425e-804f-39c8742d6ee2" />
-<img alt="Simulated aerial view of Hong Kong Disneyland along the Takeoff/Departure path from the point of view of right/starboard side window of the aircraft. [Graphics by Lincoln Chan](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)" src="https://github.com/user-attachments/assets/5b818d8b-9493-42ed-8bc9-a8c88e426802" />
 <img alt="Simulated aerial view of Hong Kong Disneyland along the Takeoff/Departure path from the point of view of right/starboard side window of the aircraft. [Graphics by Lincoln Chan](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)" src="https://github.com/user-attachments/assets/3f417b24-6b4b-4285-8db4-c4352a2a3901" />
+<img alt="Simulated aerial view of Hong Kong Disneyland along the Takeoff/Departure path from the point of view of right/starboard side window of the aircraft. [Graphics by Lincoln Chan](https://www.linkedin.com/in/lincoln-chan-0a5a60346/)" src="https://github.com/user-attachments/assets/5b818d8b-9493-42ed-8bc9-a8c88e426802" />
+
 
 
 ## Landing/Approach into Hong Kong
