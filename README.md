@@ -33,6 +33,7 @@ If you are taking off or landing when Disneyland is having their Nighttime show,
 [This repository’s](https://github.com/lincolnlychan/How-to-take-Aerial-Photographs-of-Hong-Kong-Disneyland/) social media preview image is [an Aerial Photo of Hong Kong Disneyland taken by Ryan Severin just after takeoff](https://www.facebook.com/groups/hkdltips/permalink/1933121910744880/) 
 
 <img alt="[Aerial Photo of Hong Kong Disneyland taken by Ryan Severin just after takeoff/ Aerial View of Hong Kong Disneyland taken by Ryan Severin just after takeoff/ bird's-eye view of Hong Kong Disneyland taken by Ryan Severin just after takeoff/ Hong Kong Disneyland Aerial View taken by Ryan Severin just after takeoff/ Hong Kong Disneyland Resort Aerial View taken by Ryan Severin just after takeoff/ 鳥瞰香港迪士尼樂園/ 香港迪士尼樂園鳥瞰圖/ 鳥瞰香港迪士尼度假區/ 香港迪士尼度假區鳥瞰圖/ 香港迪士尼度假區俯瞰圖/ 香港迪士尼樂園俯瞰圖/ 香港迪士尼樂園高空拍攝全相/ 香港迪士尼度假區高空拍攝全相/ 香港迪士尼樂園高空圖/ 香港迪士尼度假區高空圖/ 香港迪士尼樂園上空圖/ 香港迪士尼度假區上空圖](https://www.facebook.com/groups/hkdltips/permalink/1933121910744880/) " src="https://github.com/user-attachments/assets/4c8dbf4d-9a5f-4364-b049-5623b8c78e83"/>
+
 **[This article was originally posted on Linkedin.](https://www.linkedin.com/pulse/how-take-aerial-photographs-hong-kong-disneyland-when-lincoln-chan-47jyc/) It also has the following alternative titles:**
 - How to get aerial views of Hong Kong Disneyland
 - How to get a bird's-eye view of Hong Kong Disneyland
@@ -47,4 +48,5 @@ If you are taking off or landing when Disneyland is having their Nighttime show,
 - 如何在飛機上看到香港迪士尼樂園
 - 點樣喺飛機上面睇到香港迪士尼樂園 
 - 點樣喺空中影到香港迪士尼樂園
+
 <img alt="[Aerial Photo of Hong Kong Disneyland taken by Ryan Severin just after takeoff/ Aerial View of Hong Kong Disneyland taken by Ryan Severin just after takeoff/ bird's-eye view of Hong Kong Disneyland taken by Ryan Severin just after takeoff/ Hong Kong Disneyland Aerial View taken by Ryan Severin just after takeoff/ Hong Kong Disneyland Resort Aerial View taken by Ryan Severin just after takeoff/ 鳥瞰香港迪士尼樂園/ 香港迪士尼樂園鳥瞰圖/ 鳥瞰香港迪士尼度假區/ 香港迪士尼度假區鳥瞰圖/ 香港迪士尼度假區俯瞰圖/ 香港迪士尼樂園俯瞰圖/ 香港迪士尼樂園高空拍攝全相/ 香港迪士尼度假區高空拍攝全相/ 香港迪士尼樂園高空圖/ 香港迪士尼度假區高空圖/ 香港迪士尼樂園上空圖/ 香港迪士尼度假區上空圖](https://www.facebook.com/groups/hkdltips/permalink/1933121910744880/) " src="https://github.com/user-attachments/assets/4c8dbf4d-9a5f-4364-b049-5623b8c78e83"/>
